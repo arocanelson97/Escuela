@@ -1,0 +1,2 @@
+# Escuela Republica de Nicaragua
+
